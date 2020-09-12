@@ -29,12 +29,12 @@ Such biggoted and underhanded tactics used by members of CMHA in coordination wi
   - the government of Ontario under whose statutory laws, policies, acts and purview a prejudiced crime of this nature was committed.
   
 ## Plea for justice
-Upon consulting with lawyers I was informed that to even bring my case forward to a court I would need upwards of $50,000 (fifty thousand dollars)! This is an exorbitant amount that I cannot affod. It is evident that the justice system is inaccessible to a person like me, who has suffered damages at the hands of various sister bodies of the government's justice department. The harm done to me in the recent months has exacerbated my mental health disability due to attention defficit disorder (ADD). For this reason I have been unable to earn a living and have been reduced to poverty and distress during an ongoing pandemic. 
+Upon consulting with lawyers I was informed that to even bring my case forward to a court I would need upwards of $50,000 (fifty thousand dollars)! This is an exorbitant amount that I cannot affod. It is evident that the justice system is inaccessible to a person like me, who has suffered damages at the hands of various sister bodies of the government's justice department. The harm done to me in the recent months has exacerbated my mental health disability due to attention deficit disorder (ADD). For this reason I have been unable to earn a living and have been reduced to poverty and distress during an ongoing pandemic. 
 
 Prior to this deplorable neurochemical assault against me through clinicians at CMHA and GRH, the federal agency called Immigration, Refugees and Citizenship Canada (IRCC) was mucking around with my application for permanent residence in Canada. Due to IRCC's professional malfeasence and poor systems management my application continued to get delayed and put me through severe healthcare and financial trauma. The details of this separate issue are presented [here](https://cdn.knightlab.com/libs/timeline3/latest/embed/index.html?source=1vxBNXk_ffw8HbrJVsw5qO-67aSfVnEesnBqKvsk8Qko&font=Georgia-Helvetica&lang=en)
 
 ## Why now, why me
-I believe these acts were committed against me due to my activism: 
+I believe subversive biochemical acts were committed against me due to my activism: 
   1. Investigating and highlighting corruption among S&P 500 corporations with identifiable names and aliases of their chief executive and chief financial officers. 
   
      - https://github.com/lightning-chasers/earnings-calls
@@ -44,9 +44,9 @@ I believe these acts were committed against me due to my activism:
      - https://github.com/serene-solidarity/init/blob/master/Canadian-Solidarity.pdf
      - https://github.com/serene-solidarity/init/blob/master/calhouns_rats.pdf
     
-  1. Filing a police complaint with the Royal Canadian Mounted Police (RCMP) about cyber attacks that pillaged my medical data and proprietary intellectual property for cyber security software. My warning about similar attacks being conducted against Canadians at a persistent and increasing level were unheded. This was months prior to the LifeLabs hack that has adversely impacted the privacy and security of millions of residents, visitors and newcomers to Canada. 
+  1. Filing a police complaint with the Royal Canadian Mounted Police (RCMP) about cyber attacks that pillaged my medical data and proprietary intellectual property for cyber security software. My complaint and warning about similar attacks being conducted against Canadians at a persistent and increasing level were unheeded. This was months prior to the LifeLabs hack in 2019 that has adversely impacted the privacy and security of millions of residents, visitors and newcomers to Canada. 
   
-  1. Artistic expressions and social media activities highlighting the dehumanizing acts of the incumbent government:
+  1. Artistic expressions and social media activities highlighting the dehumanizing acts of the incumbent government and British Monarchy:
   
      - https://twitter.com/psyedout
      - https://linkedin.com/in/sameer1khan
